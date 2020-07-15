@@ -1,5 +1,5 @@
 # Charles Darwin Biography
-
+![Branching](TELEMMGLPICT000036820544_trans++RMPdAQh26qjv-IIr3xDRU1qiEd_IfCIDgII5DVa_CFc.jpeg)
 Charles Darwin (1809 – 1882) was an English Natural scientist who laid down a framework for the theory of evolution – showing how Man evolved from lower life forms. At the time, his research and publication led to bitter controversy, but his theory of evolution and natural selection later became accepted within the scientific community.
 
 Charles Darwin was born on 12 February 1809 in Shrewsbury, Shropshire. He was born into a wealthy and influential family. His grandfathers included – China manufacturer Josiah Wedgwood, and Erasmus Darwin, one of the leading intellectuals of 18th century England.
